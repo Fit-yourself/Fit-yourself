@@ -12,5 +12,5 @@
 - 🌱 I’m currently learning embedded development
 - 🤔 I’m looking for help with my mind and body
 - 💬 Ask me about your idea about the world.
-- 📫 How to reach me: yanbeibei444@gmail.com
+- 📫 How to reach me: love4yzp@gmail.com
 - ⚡ Fun fact: I love muscle.
